@@ -1,1 +1,1 @@
-- Twitter: @K_YukiDaruma
+- Twitter: @[K_YukiDaruma](https://twitter.com/K_YukiDaruma)
